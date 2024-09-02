@@ -16,7 +16,7 @@
 
 💬 Ask me about **Java, React Native, Oracle Database... or anything**
 
-⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
+⚡ Fun fact **WOTA**
 
  </div>
  
